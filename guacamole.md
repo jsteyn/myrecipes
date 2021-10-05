@@ -5,6 +5,7 @@
 - balsamic vinegar
 - salt
 - red chillies
+- balsamic vinegar
 
 ## Instructions
 - mash avocados
