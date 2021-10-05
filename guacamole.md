@@ -2,7 +2,7 @@
 
 ## Ingredients
 - avocados
-- lemon juice
+- balsamic vinegar
 - salt
 - red chillies
 
